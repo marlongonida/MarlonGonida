@@ -1,3 +1,6 @@
+![banner](https://github.com/marlongonida/MarlonGonida/assets/152489157/4cfefb33-18c8-4bce-855e-50de734e5220)
+
+
 # Hi there, I'm Marlon Gonida! 👋
 
 ## About Me
